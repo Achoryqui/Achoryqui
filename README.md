@@ -1,10 +1,4 @@
-- 👋 Hi, I’m @Achoryqui
-- 👀 I’m interested in 
-- 🌱 fandoms im in Reverse1999/gi/
-- 🖌️ An artist!!
-- 📫 How to reach me discord!! @anchry_qui
-- 😄 Pronouns: she/her
-- ⚡ Fun fact: i can disappear 
+i do fanarts, art trades, commission and collabs!!
 
 <!---
 Achoryqui/Achoryqui is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
